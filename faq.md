@@ -12,5 +12,9 @@ Dress like you're going to a fancy cocktail bar.  Hawaiian shirts encouraged.  I
 # Will there be tacos?
 Heck yes!
 
+# How do I get to this shindig
+There is a Blue Line stop about a block away from Violet Hour, this is the easiest and best way to get there!  Parking in Wicker Park is not good, so we recommend either taking the blue line or a lyft.
+
 # Where should I stay
-Somewhere off of the blue line, the best L line!  This will take you right to the wedding venue and also Chicago O'Hare airport.
+Somewhere off of the blue line, the best L line!  This will take you right to the wedding venue and also Chicago O'Hare airport.  More hotel info soon . . .
+
