@@ -22,7 +22,11 @@ Somewhere off of the blue line, the best L line!  This will take you right to th
 
 We don't need more things!  We are two grown adults and we have so many things.  However, if you are so moved, we would love it if you would donate to one of the following charities:
 [The American Civil Liberties Union](https://www.aclu.org/)
+
 [The Electronic Frontier Foundation](https://www.eff.org/)
+
 [Planned Parenthood](https://www.plannedparenthood.org/)
+
 [The Council on American-Islamic Relations](https://www.cair.com/)
+
 [The Southern Poverty Law Center](https://www.splcenter.org/)
