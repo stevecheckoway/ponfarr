@@ -11,3 +11,6 @@ Dress like you're going to a fancy cocktail bar.  Hawaiian shirts encouraged.  I
 
 # Will there be tacos?
 Heck yes!
+
+# Where should I stay
+Somewhere off of the blue line, the best L line!  This will take you right to the wedding venue and also Chicago O'Hare airport.
