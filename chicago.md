@@ -14,6 +14,8 @@ Longman and Eagle - Delicious whiskey drinks plus good food!  Lots of weird meat
 
 Lost Lake - Tiki bar with incredibly good drinks AND out of control garnish game.  Our favorite bar in Chicago, it’s the best.  They have a regular drinks menu AND a secret drinks menu.  You can also get snacks from the Chinese restuarant next door.
 
+Dill Pickle Co-op - Hippie food co-op.  Lots of vegan treats.  Can be a little expensive.  Hippie dudes who work here are always really excited about whatever you’re buying.  
+
 # California
 
 Chicago Diner - vegetarian restaurant, get the reuben!  They’re known for their seitan.  Also they have really good gravy.  Also milkshakes.
@@ -24,9 +26,7 @@ Revolution Brewery - Local Chicago brewery.  Also serves pretty good food.  Okay
 
 Galerie F - Art gallery that focuses on prints (especially show posters) and street art.  Lots of good Chicago themed stuff and local artists.  Good place for reasonably priced art.
 
-Cafe Mustache - I haven’t been here, but it looks like the hippest coffee shop ever.
-
-Dill Pickle Co-op - Hippie food co-op.  Lots of vegan treats.  Can be a little expensive.  Hippie dudes who work here are always really excited about whatever you’re buying.  
+Cafe Mustache - EXTREMELY HIPSTER coffee shop that is also a bar at night.  They have at least 4 kinds of malort.
 
 # Western
 
