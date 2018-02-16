@@ -1,5 +1,3 @@
-# Pon farr solutions
-
 [FAQ](faq.md)
 
 [Venue](http://www.theviolethour.com/#about)
