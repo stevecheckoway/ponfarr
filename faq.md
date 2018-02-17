@@ -13,7 +13,10 @@ Anything moderately fancy, like you're going to a fancy cocktail bar.  Hawaiian 
 Heck yes!
 
 # How do I get to this shindig?
-There is a Blue Line stop about a block away from Violet Hour, this is the easiest and best way to get there!  Parking in Wicker Park is not good, so we recommend either taking the blue line or a lyft.
+The Damon blue line stop is less than a block away from Violet Hour, this is the easiest and best way to get there!  Parking in Wicker Park is not good, so we recommend either taking the blue line or a lyft.
+
+# How do I actually find this place?
+Violet Hour doesn't actually have a sign.  They have a mural outside and a blue light above the door.  We'll post a picture of the outside close to the actual event!
 
 # Where should I stay?
 Somewhere off of the blue line, the best L line!  This will take you right to the wedding venue and also Chicago O'Hare airport.  More hotel info soon . . .
