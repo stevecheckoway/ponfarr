@@ -7,7 +7,7 @@ You will come to the Violet Hour.  You will eat.  You will drink.  You will be m
 No
 
 # What should I wear?
-Dress like you're going to a fancy cocktail bar.  Hawaiian shirts encouraged.  If you're a dude, you have to wear close-toed shoes or the Violet Hour will heckle you.
+Anything moderately fancy, like you're going to a fancy cocktail bar.  Hawaiian shirts encouraged.  If you're a dude, you have to wear close-toed shoes or the Violet Hour will heckle you.
 
 # Will there be tacos?
 Heck yes!
@@ -20,7 +20,8 @@ Somewhere off of the blue line, the best L line!  This will take you right to th
 
 # I would like to give you something to celebrate your love
 
-We don't need more things!  We are two grown adults and we have so many things.  However, if you are so moved, we would love it if you would donate to one of the following charities:
+We are two grown adults and we have so many things, please don't give us anymore things.  However, if you are so moved, we would love it if you would donate to one of the following charities:
+
 [The American Civil Liberties Union](https://www.aclu.org/)
 
 [The Electronic Frontier Foundation](https://www.eff.org/)
