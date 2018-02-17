@@ -7,7 +7,7 @@ You will come to the Violet Hour.  You will eat.  You will drink.  You will be m
 Nah.
 
 # What should I wear?
-Dress like you're going to a slightly pretentious cocktail bar.  Hawaiian shirts encouraged.  If you're a dude, you have to wear close-toed shoes or the Violet Hour will heckle you.
+Dress like you're going to a slightly pretentious cocktail bar.  Hawaiian shirts encouraged.  If you're a dude, you have to wear closed-toed shoes or the Violet Hour will heckle you.
 
 # Will there be tacos?
 Heck yes!
