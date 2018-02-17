@@ -4,7 +4,7 @@ You will come to the Violet Hour.  You will eat.  You will drink.  You will be m
 
 # Will there be some sort of ceremony?
 
-No
+Nah.
 
 # What should I wear?
 Dress like you're going to a slightly pretentious cocktail bar.  Hawaiian shirts encouraged.  If you're a dude, you have to wear close-toed shoes or the Violet Hour will heckle you.
@@ -16,10 +16,10 @@ Heck yes!
 The Damon blue line stop is less than a block away from Violet Hour, this is the easiest and best way to get there!  Parking in Wicker Park is not good, so we recommend either taking the blue line or a lyft.
 
 # How do I actually find this place?
-Violet Hour doesn't actually have a sign.  They have a mural outside and a blue light above the door.  We'll post a picture of the outside close to the actual event!
+Violet Hour doesn't actually have a sign.  They have a mural outside and a light above the door.  We'll post a picture of the outside close to the actual event!
 
 # Where should I stay?
-Somewhere off of the blue line, the best L line!  This will take you right to the wedding venue and also Chicago O'Hare airport.  More hotel info soon . . .
+Somewhere off of the blue line, the best L line!  This will take you right to the wedding venue and also Chicago O'Hare airport.  More hotel info soon...
 
 # I would like to give you something to celebrate your love
 
