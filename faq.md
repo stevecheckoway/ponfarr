@@ -23,7 +23,7 @@ Somewhere off of the blue line, the best L line!  This will take you right to th
 
 # I would like to give you something to celebrate your love
 
-We are two grown adults and we have so many things, please don't give us anymore things.  However, if you are so moved, we would love it if you would donate to one of the following charities:
+We are two grown adults and we have so many things, please don't give us any more things.  However, if you are so moved, we would love it if you would donate to one of the following charities:
 
 [The American Civil Liberties Union](https://www.aclu.org/)
 
