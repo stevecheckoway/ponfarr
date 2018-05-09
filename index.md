@@ -2,7 +2,7 @@
 
 [FAQ](faq.md)
 
-[Venue](http://www.theviolethour.com/#about)
+[Venue](http://www.theviolethour.com/#about), Saturday at 18:00
 
 [Pictures of our Cats](cats.md)
 
